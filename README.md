@@ -1,2 +1,2 @@
-# Estudo-Python
+# EstudoPython
 Estudando linguagem de programação Python
