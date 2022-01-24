@@ -13,3 +13,5 @@ Dia 07/01 - Estudei das 18:10 até 23:00(2 pausas) - Assisti aula 008 e tentei r
 Dia 11/01 - Estudei das 20:00 até 21:50 - Tentando resolver exercicios 18,19,20 e 21
 
 Dia 12/01 - Estudei das 10:00 até 12:10 - Terminei exercicio do 16 ao 21 (Esperando conclusão)
+
+dia 24/01 - Estudei das 18:00 até 19:44 - Assisti a conclusão dos exercicio 16 ao 21
