@@ -16,4 +16,6 @@ Dia 12/01 - Estudei das 10:00 até 12:10 - Terminei exercicio do 16 ao 21 (Esper
 
 dia 24/01 - Estudei das 18:00 até 19:44 - Assisti a conclusão dos exercicio 16 ao 21
 
-dia 03/01 - Estudei das 13:10 até 15:10 - Assisti o video 009 e vou fazer exercicio do 22 ao 27
+dia 03/02 - Estudei das 13:10 até 15:10 - Assisti o video 009 e vou fazer exercicio do 22 ao 27
+
+dia 09/02 - Estudei das 16:00 até 18:10 - Assiti a conclusão dos exercicio 22 e 23
